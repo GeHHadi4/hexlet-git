@@ -1,1 +1,0 @@
-I playing DOTA2
