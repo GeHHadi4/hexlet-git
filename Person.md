@@ -1,1 +1,0 @@
-Lavlinskii Andrei
